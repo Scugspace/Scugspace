@@ -7,7 +7,6 @@
 -  I often have a lot of time on my hands, I like to play with my friends.
 -  !Please, PLEASE let me know If someting I say or do makes you uncomfortable. It's a major worry of mine that everyone dislikes me and finds me annoying.!
 
-[Art in pfp is by Noxxism!!]
 
 [FOR PONYTOWN] 
 - You will usually see me in the phighting corner with a friend or two. I'm socially anxious, causing me to not be that open to new people, at times I may not want to talk at all. I don't really know exactly how to respond to positive comments/compliments, whcih is why I usually don't respond at all to them.
