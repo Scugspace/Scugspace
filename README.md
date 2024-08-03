@@ -18,6 +18,7 @@
 [FOR PONYTOWN] 
 - You will usually see me in the phighting corner with a friend or two. I'm socially anxious, causing me to not be that open to new people, at times I may not want to talk at all. I don't really know exactly how to respond to positive comments/compliments, whcih is why I usually don't respond at all to them.
 - I'm not very comfortable with C + H from strangers, as it gives me a strong urge to move away and just feels weird in general. But it's always welcome for friends!
+- Please don't cover me unless I cover myself, it's annoying.
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------
 
