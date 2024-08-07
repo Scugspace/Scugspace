@@ -20,6 +20,7 @@
 - I'm not very comfortable with C + H from strangers, as it gives me a strong urge to move away and just feels weird in general. But it's always welcome for friends!
 - Please don't cover me unless I cover myself, it's annoying.
 - I don't care if you take inspo or copy something from my skins, it's a completely normal thing to do in many forms of art.
+- Systems please iwc, personal reasons.
 --------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
