@@ -2,9 +2,11 @@
 
 
 - I'm Scug, I have a large interest in both Phighting and Rainworld. I may repeat myself/sound weird, however I'm trying to stop being so repetitive. Most of what I say is a joke, and I also find it fun to jokingly act as a character at times.
+- I love talking about headcanons...
 - I use tonetags to indicate what tone I'm using, and would prefer if those I intereact with also do since it helps me a lot!
 -  In my freetime I like to play games, watch Youtube, draw, and more.
 -  I often have a lot of time on my hands, I like to play with my friends.
+-  Please dont use racial slurs around me I don't care if "you're allowed to" I just don't like it.
 -  !If I'm your friend, please, PLEASE let me know If someting I say or do makes you uncomfortable. It's a major worry of mine that everyone dislikes me and finds me annoying.!
 
  [Intrests] 
@@ -14,7 +16,7 @@
 - warriors
 - WoF [kind of, I just like the dragons and the first series.]
 - Avatar, the one with the like.. Blue people LOL
-
+  
 [FOR PONYTOWN] 
 - You will usually see me in the phighting corner with a friend or two. I'm socially anxious, causing me to not be that open to new people, at times I may not want to talk at all. I don't really know exactly how to respond to positive comments/compliments, whcih is why I usually don't respond at all to them.
 - I'm not very comfortable with C + H from strangers, as it gives me a strong urge to move away and just feels weird in general. But it's always welcome for friends!
