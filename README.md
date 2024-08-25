@@ -8,14 +8,16 @@
 -  I often have a lot of time on my hands, I like to play with my friends.
 -  Please dont use racial slurs around me I don't care if "you're allowed to" I just don't like it.
 -  !If I'm your friend, please, PLEASE let me know If someting I say or do makes you uncomfortable. It's a major worry of mine that everyone dislikes me and finds me annoying.!
+- a lot of things randomly makee angry. please remember this if I "get mad over nothing". 
 
  [Intrests] 
 - Deltarune/undertale
 - Phighting
 - Rainworld
-- warriors
+- warriors [hardly]
 - WoF [kind of, I just like the dragons and the first series.]
 - Avatar, the one with the like.. Blue people LOL
+- young subspace, hes my favorite phighting character.
   
 [FOR PONYTOWN] 
 - You will usually see me in the phighting corner with a friend or two. I'm socially anxious, causing me to not be that open to new people, at times I may not want to talk at all. I don't really know exactly how to respond to positive comments/compliments, whcih is why I usually don't respond at all to them.
@@ -26,7 +28,7 @@
 --------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-- DNI : Racists, homophobes, sexists, Nazis, proshippers, countryhumans [thin ice], phedos/zoos, HB/HH [VERY thin ice], subkit shippers, SFOTH [phighting] shippers and just general weirdos/creeps. 
+- DNI : Racists, homophobes, sexists, Nazis, proshippers, countryhumans [thin ice], phedos/zoos, HB/HH [VERY thin ice], subkit shippers, SFOTH [phighting] shippers, dandys world supporters, heavy subspace shippers [extremely romantic ships involving him],and just general weirdos/creeps. 
 <!---
 Scugspace/Scugspace is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
