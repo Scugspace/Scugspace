@@ -28,7 +28,7 @@
 --------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-- DNI : Racists, homophobes, sexists, Nazis, proshippers, countryhumans [thin ice], phedos/zoos, HB/HH [VERY thin ice], subkit shippers, SFOTH [phighting] shippers, dandys world supporters, heavy subspace shippers [extremely romantic ships involving him],and just general weirdos/creeps. 
+- DNI : Racists, homophobes, sexists, Nazis, proshippers, countryhumans [thin ice], phedos/zoos, HB/HH [VERY thin ice], subkit shippers, coilspace shippers, romantic biograft shippers, SFOTH [phighting] shippers, dandys world supporters, heavy subspace shippers [extremely romantic ships involving him],and just general weirdos/creeps. 
 <!---
 Scugspace/Scugspace is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
