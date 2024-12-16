@@ -17,6 +17,8 @@
 - Young subspace, hes my favorite phighting character.
 - Young rocket.
 - The interitance cycle, big one right now but fans are extinct.
+- Palworld
+- Pokemon
   
 [Social] 
 - I'm socially anxious, causing me to not be that open to new people, at times I may not want to talk at all, if I'm ignoring you, please just leave me alone.
