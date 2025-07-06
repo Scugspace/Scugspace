@@ -34,7 +34,8 @@
 
 - DNI : Racists, homophobes, sexists, Nazis, proshippers, countryhumans , phedos/zoos, HB/HH [VERY thin ice], Regretevator [THIN ice], and just general weirdos/creeps.
 - Don't interact with me if you're going to gatekeep stupid stuff. Old/niche admins or exploiters, "classic" styles, older video games or lesser known fandoms, etc.
-- If you are someone that gets all pissy over headcanoned characters being overcomplicated/changed too much, do not speak to me please. 
+- If you are someone that gets all pissy over headcanoned characters being overcomplicated/changed too much, do not speak to me please.
+- BluuKidd shippers thin ice. I don't want to hear about it but idc if you ship it.  
   
 
 - 17+ IWEC
