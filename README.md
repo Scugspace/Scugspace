@@ -6,7 +6,7 @@
 - I use sometimes use tonetags to indicate what tone I'm using, and would prefer if those I intereact with also do since it helps me a lot.
 -  I have a lot of freetime, which I spend with friends and playing video games. 
 -  !If I'm your friend, please, PLEASE let me know If someting I say or do makes you uncomfortable. It's a major worry of mine that everyone dislikes me and finds me annoying.! I often don't realize I'm doing something wrong, I NEVER have weird intentions I promise.
--  My apolocheese if this all in't accurate, I don't know how to write about myself. 
+-  My apoloch if this all in't accurate, I don't know how to write about myself. 
 
  [Intrests] 
 - Forsaken, I am not good at the game, although it is very fun with friends. I like some of the characters. 
