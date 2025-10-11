@@ -9,7 +9,6 @@
 -  I am sorry if this all isn't accurate, I don't know how to write about myself. 
 
  [Intrests] 
-- Forsaken, I am not good at the game, although it is very fun with friends. I like some of the characters. 
 - Rainworld, I don't know why but I have over 2k hours in this game, the lore and gameplay make me very happy, rainworld is my favorite game of all time. Feel free to talk to me about it! My favorite slugcat is Monk. 
 - WoF, I have reread this series many times, it holds a special place in my heart! Choosing a favorite character is difficult. I love Blue and Starflight tons. 
 - Cats, all cats. Except breeds like munchkin cats.
@@ -37,8 +36,6 @@
 - If you are someone that gets all pissy over headcanoned characters being overcomplicated/changed too much, do not speak to me please.
 - BluuKidd shippers thin ice. I don't want to hear about it but idc if you ship it.  
   
-
-- 17+ IWEC
 <!---
 Scugspace/Scugspace is a ✨ special ✨ repositor because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
